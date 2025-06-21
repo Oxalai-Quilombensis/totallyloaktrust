@@ -12,3 +12,8 @@ hi loak is me hi hi hi
 
 
      - ❝ Sorry, I don't speak english to assholes. ❞
+
+
+
+
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=are+you+man+enough?;to+take+the+blame+for+this)](https://git.io/typing-svg)
